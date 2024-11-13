@@ -4,4 +4,4 @@ health-mental-spiritual
 
 
 health-mental-story
-> vsvhms_lididid - [Kisah Bijaksana](https://m.youtube.com/@kisahbijaksana07) - 2024_06_16 - [Rahasia Yang Bisa Bangkitkan Semangat Seorang Pemalas](https://youtu.be/v5PK6ICpYKY) <img src="media/v5PK6ICpYKY/">
+> vsvhms_lididid - [Kisah Bijaksana](https://m.youtube.com/@kisahbijaksana07) - 2024_06_16 - [Rahasia Yang Bisa Bangkitkan Semangat Seorang Pemalas](https://youtu.be/v5PK6ICpYKY) <img src="media/v5PK6ICpYKY/Screenshot_2024-11-13-17-48-44-78.png">
